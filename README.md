@@ -1,9 +1,6 @@
 > `Get around in the season!`
 >
-> ![San Junipero](https://images2.imgbox.com/9c/43/5fIGHW31_o.gif)
->
-> ![](https://watermelon.crd.co/assets/images/gallery02/f26db027.gif?v=75c8e322)
->
+> ![San Junipero](https://images2.imgbox.com/a8/26/6PgBMg9w_o.gif)
 >
 > hi hello welcome to my disaster profile o/
 >
