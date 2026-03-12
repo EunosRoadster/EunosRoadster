@@ -1,6 +1,6 @@
 > `Get around in the season!`
 >
-> ![San Junipero](https://images2.imgbox.com/a8/26/6PgBMg9w_o.gif)
+> ![San Junipero](https://c.tenor.com/Io-ehOYLGxwAAAAd/tenor.gif)
 >
 > hi hello welcome to my disaster profile o/
 >
