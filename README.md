@@ -16,6 +16,8 @@
 > 
 > always open to DM's and chatting :J (by proxy C+H is okay with me)
 >
+> also i think this self explanatory, but i won't be friends with you if you're under 15, no offence stay safe out there lads
+>
 > ![](https://mawazda.carrd.co/assets/images/gallery01/9d5fd1a4.jpg?v=8098da0b)
 > ***
 >
