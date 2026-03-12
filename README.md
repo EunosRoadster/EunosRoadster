@@ -19,7 +19,6 @@
 > also i think this self explanatory, but i won't be friends with you if you're under 15, no offence stay safe out there lads
 >
 > ![](https://mawazda.carrd.co/assets/images/gallery01/9d5fd1a4.jpg?v=8098da0b)
-> ***
 >
 > ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Floveaid&label=awesome%20people&countColor=%232ccce4)
 > 
