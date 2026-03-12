@@ -1,6 +1,6 @@
 > `Get around in the season!`
 >
-> ![San Junipero](https://c.tenor.com/Io-ehOYLGxwAAAAC/tenor.gif)
+> ![San Junipero](https://images2.imgbox.com/75/6a/Fy0XJba7_o.gif)
 >
 > ![](https://watermelon.crd.co/assets/images/gallery02/f26db027.gif?v=75c8e322)
 >
