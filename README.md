@@ -1,3 +1,5 @@
+> ![](https://images2.imgbox.com/48/90/jI2U1Iak_o.png)
+>
 > ![San Junipero](https://c.tenor.com/Io-ehOYLGxwAAAAd/tenor.gif)
 >
 > hi hello welcome to my disaster profile o/
@@ -15,7 +17,5 @@
 > always open to DM's and chatting :J (by proxy C+H is okay with me)
 >
 > ![](https://mawazda.carrd.co/assets/images/gallery01/9d5fd1a4.jpg?v=8098da0b)
->
-> ![](https://images2.imgbox.com/48/90/jI2U1Iak_o.png)
 >
 > ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FEunosRoadster&label=passengers&countColor=%23f47373&style=plastic)
