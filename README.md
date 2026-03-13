@@ -1,6 +1,6 @@
 > ![San Junipero](https://c.tenor.com/Io-ehOYLGxwAAAAd/tenor.gif)
 >
-> hallo, welcome to my disaster profile o/, I go by he/him, am an ENTP-T & unfortunately in my 20's but I feel like a dinosaur already
+> hallo, welcome to my disaster profile o/, I go by he/him, am an ENTP-T & unfortunately in my 20's but I feel like a fossil already
 > 
 > my hobbies include dreaming about driving expensive cars, flying small aircraft and wondering how my bank still tolerates me
 > 
