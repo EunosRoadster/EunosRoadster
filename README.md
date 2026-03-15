@@ -12,8 +12,7 @@
 >
 > I'm a fairly slow thinker and have trouble expressing myself well (autism) so I appreciate your patience o7
 > 
-> feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends!:J
-> 
+> feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends! :J
 >
 > ![](https://images2.imgbox.com/48/90/jI2U1Iak_o.png)
 >
