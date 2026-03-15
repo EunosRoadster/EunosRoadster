@@ -10,9 +10,7 @@
 >
 > peek at my humble comfort cars: honda civic eg6, saab 9-3 aero, mazda rx7, suzuki kei (works), toyota ae86, mitsubishi 3000gt
 >
-> I'm a fairly slow thinker and have trouble expressing myself well (autism) so I appreciate your patience o7
-> 
-> feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends! :J
+> please be patient with me, feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends! :J
 >
 > ![](https://images2.imgbox.com/58/2f/i7Sd41km_o.gif)
 >
