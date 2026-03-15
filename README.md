@@ -7,10 +7,13 @@
 > i fly small aircraft (money ouch) & mess with vintage digital (& film) cameras, I also collect CDs and vinyls (money ouch x2) :3
 >
 > my special interest is the [mazda mx5 also known as the mazda miata](https://www.auto-data.net/en/mazda-mx-5-i-na-1.8-130hp-11263) and mazda cars in general, please yell in my ear about it lol
-> 
+>
+> peek at my humble comfort cars: honda civic eg6, saab 9-3 aero, mazda rx7, suzuki kei (works), toyota ae86, mitsubishi 3000gt
+>
 > I'm a fairly slow thinker and have trouble expressing myself well (autism) so I appreciate your patience o7
 > 
-> peek at my funny comfort cars: honda civic eg6, saab 9-3 aero, mazda rx7, suzuki kei (works), toyota ae86, mitsubishi 3000gt
+> feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends!:J
+> 
 >
 > ![](https://images2.imgbox.com/48/90/jI2U1Iak_o.png)
 >
