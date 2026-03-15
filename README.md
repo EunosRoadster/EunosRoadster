@@ -12,7 +12,7 @@
 >
 > please be patient with me, feel free to whisper/pm me anything, C+H is always welcome, and don't be afraid to ask to be friends! :J
 >
-> ![](https://images2.imgbox.com/58/2f/i7Sd41km_o.gif)
+> ![By MtnDogeDew on deviantart](https://images2.imgbox.com/58/2f/i7Sd41km_o.gif)
 >
 > ![Initial D Fan stamp](https://mawazda.carrd.co/assets/images/gallery01/9d5fd1a4.jpg?v=8098da0b)
 >
