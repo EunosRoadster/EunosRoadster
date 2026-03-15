@@ -10,7 +10,7 @@
 > 
 > I'm a fairly slow thinker and have trouble expressing myself well (autism) so I appreciate your patience o7
 > 
-> comfort characters? nope! comfort cars!: honda civic eg6, saab 9-3 aero, mazda rx7, suzuki kei (works), toyota ae86, 2010s mazda3, 2010s suzuki swift sport, nissan silvia s13, 1995 mitsubishi 3000gt
+> my funny comfort cars: honda civic eg6, saab 9-3 aero, mazda rx7, suzuki kei (works), toyota ae86, mitsubishi 3000gt :3
 >
 > ![](https://images2.imgbox.com/48/90/jI2U1Iak_o.png)
 >
