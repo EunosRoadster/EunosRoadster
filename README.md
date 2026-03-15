@@ -4,7 +4,7 @@
 >
 > hallo, welcome to my disaster profile o/, I go by he/him, am an ENTP-T & unfortunately in my 20's but I feel like a fossil already
 > 
-> i fly small aircraft (money ouch) & mess with vintage digital (& film) cameras, I also collect CDs and vinyls (money ouch x2) :3
+> i fly small aircraft (money ouch) & mess with vintage digital (& film) cameras, I also collect CDs and vinyls (money ouch x2)
 >
 > my special interest is the [mazda mx5 also known as the mazda miata](https://www.auto-data.net/en/mazda-mx-5-i-na-1.8-130hp-11263) and mazda cars in general, please yell in my ear about it lol
 >
